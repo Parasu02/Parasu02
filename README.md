@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://parasuraman02.wordpress.com](https://parasuraman02.wordpress.com)
 
-- 📫 How to reach me **parasuramanadckap@gmail.com**
+- 📫 How to reach me **parasuapt02@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
